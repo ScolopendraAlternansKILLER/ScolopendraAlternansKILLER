@@ -1,6 +1,6 @@
-![](https://i.postimg.cc/j2w9tyKr/IMG-8955.gif) 
+![](https://64.media.tumblr.com/c32ceee6a1a20c6342f9213ec4cb06e2/a00620d714f49a7f-84/s500x750/9767de05ad26073329a97635d61ae20d2ca9cdfa.gifv) 
 
-I  know, another  new  git .  im  sorry :(
+I  know, another  new  git .  im  sorry ![](https://watermelon.crd.co/assets/images/gallery24/5b32a788.gif?v=75c8e322)
 
 ---
 
@@ -15,3 +15,4 @@ This situation has gone far beyond immaturity or curiosity, it is invasive, unhe
 This is your warning and your closure. Respect my boundaries, or accept the consequences of not doing so.
 
 ### goodbye.
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSYKegPcDwCjHL6CaWDQ2H535tg105b_o3mSGfCt41yvg&s=10)
